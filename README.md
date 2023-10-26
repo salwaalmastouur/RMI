@@ -1,1 +1,10 @@
 # RMI
+![9](https://github.com/salwaalmastouur/RMI/assets/125928613/ff5bdaca-c2dd-4b6d-818c-a80f2dfb0656)
+![1](https://github.com/salwaalmastouur/RMI/assets/125928613/e4ca183d-6774-454a-9cf6-70526150c325)
+![2](https://github.com/salwaalmastouur/RMI/assets/125928613/3b27e2a1-59ef-40aa-a8f2-9c34de214e68)
+![3](https://github.com/salwaalmastouur/RMI/assets/125928613/4aa2d56c-e0cb-4d1f-b11a-855e0a31d1e2)
+![4](https://github.com/salwaalmastouur/RMI/assets/125928613/ec94d00b-b048-4036-bd94-691c75ad308e)
+![5](https://github.com/salwaalmastouur/RMI/assets/125928613/9a7b06f0-3d97-4219-831c-3ea2376cb8af)
+![6](https://github.com/salwaalmastouur/RMI/assets/125928613/86d90c1f-8144-4d13-9a34-5c4469e8d804)
+![7](https://github.com/salwaalmastouur/RMI/assets/125928613/3df46dd2-39d8-42bc-992d-6499474e013a)
+![8](https://github.com/salwaalmastouur/RMI/assets/125928613/ffcdd3ef-f31f-4d11-94db-5fa9d9738d46)
